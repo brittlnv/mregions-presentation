@@ -1,1 +1,0 @@
-see S:\datac\Geo\Outreach\2019-02-28_VMDC-staff-presentation-MR for scripts
